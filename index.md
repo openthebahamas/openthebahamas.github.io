@@ -39,3 +39,11 @@ WHAT TO BE AWARE OF
 * No one will make any public statements to the media on our behalf. This document is the only source of information about the protest. It will be amended with updates on our website <https://openthebahamas.github.io>. If you want to send suggestions or comments, you can do so by send an email to <mailto:openthebahamas@pm.me>
 
 * Please share this document like there's no tomorrow.
+
+Site: <https://openthebahamas.github.io>
+
+Mail: <mailto:openthebahamas@pm.me>
+
+Twitter: <https://twitter.com/OpenBahamas>
+
+Instagram: <https://www.instagram.com/openthebahamas>
